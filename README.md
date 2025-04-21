@@ -59,6 +59,6 @@ im not the type of person to start drama ! if i do i end it quickly (sensitivity
 
 - cyberbulliers ( like the second one )
 
-- since u read to the end heres my discord! > drpeppersita <
+- since u read to the end heres my discord! > icecreamaddiction <
 
 --｡𖦹°‧--˚ ༘ 𖦹🐾⋆｡˚--✧˖°. 𝜗𝜚--
