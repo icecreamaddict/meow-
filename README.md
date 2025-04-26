@@ -23,7 +23,7 @@ i love natsu and not carly gang
 
 𝜗𝜚 minor ( under 16! )
 
-𝜗𝜚single ( not looking foward to date )
+𝜗𝜚 single ( could be looking foward to date , depends. )
 
 𝜗𝜚 im  a very professional annoying person and a yapper so i might yap your ears off
 
