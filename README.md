@@ -1,6 +1,4 @@
-`` ୨ৎ ``
-
---｡𖦹°‧--˚ ༘ 𖦹🐾⋆｡˚--✧˖°. 𝜗𝜚--
+ ──────────────·─────────── ──────────────·─────────── ──────────────·───────────
 
 ![Image](https://github.com/user-attachments/assets/83c2e6cd-ae3e-48e8-8ff2-1d9203d55d9a)
 
@@ -13,7 +11,7 @@ i love natsu and not carly gang
 
 𓏲 ๋࣭  ࣪ Read BYI .-- important stuff you should know about me xo!
 
---｡𖦹°‧--˚ ༘ 𖦹🐾⋆｡˚--✧˖°. 𝜗𝜚--
+ ──────────────·─────────── ──────────────·─────────── ──────────────·───────────
 
 𓏵 Onyxx is the name of this person!
 
@@ -39,9 +37,9 @@ im not the type of person to start drama ! if i do i end it quickly (sensitivity
 
 🍳˚𓍢ִ໋˚ I also have other hobbies like drawing , gaming , cooking (when im extremely hungry!!) , cleaning , etc -- so if i am afk i may be doing those things at the moment.
 
---｡𖦹°‧--˚ ༘ 𖦹🐾⋆｡˚--✧˖°. 𝜗𝜚--
+ ──────────────·─────────── ──────────────·─────────── ──────────────·───────────
 
-✧` ⊹  - DNI CRITERIA
+✧` ⊹  __DNI CRITERIA__
 
 - 18+ ( unless ur not that type of person ifyk what i mean. )
 
@@ -57,6 +55,7 @@ im not the type of person to start drama ! if i do i end it quickly (sensitivity
 
 - weird fandoms or proshippers etc
 
+ ──────────────·─────────── ──────────────·─────────── ──────────────·───────────
 - cyberbulliers ( like the second one )
 
 - since u read to the end heres my discord! > icecreamaddiction <
