@@ -4,7 +4,7 @@
 
 i love natsu and not carly gang  
 
-
+dc : icecreamaddictions
 
   ( ``｡𖦹°‧  Everyone may interact and c+h , if i do not answer pls wait i may b offtab or very busy just w2i w me , and letters i love S , C , D , S , M , M , L , ETC
       yayy pls interact !!! ★ `` )
@@ -58,6 +58,6 @@ im not the type of person to start drama ! if i do i end it quickly (sensitivity
  ──────────────·─────────── ──────────────·─────────── ──────────────·───────────
 - cyberbulliers ( like the second one )
 
-- since u read to the end heres my discord! > icecreamaddictions <
+
 
 
